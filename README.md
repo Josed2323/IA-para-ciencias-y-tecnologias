@@ -1,1 +1,1 @@
-Jose Dario Jimenez Ramirez, C.C. 1018464885,  Ingenieria de sistemas
+Jose Dario Jimenez Ramirez,  CC 1018464885,  Ingenieria de sistemas
